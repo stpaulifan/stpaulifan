@@ -1,4 +1,4 @@
-### Hey guys 👋
+### Hey together 👋
 
 🌱 I’m currently learning ...
 
